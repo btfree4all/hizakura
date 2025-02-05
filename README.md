@@ -1,4 +1,4 @@
-# Latest hizakura Coupon Codes for 2024 - Organized Summary of hizakura Promotions
+# Latest hizakura Coupon Codes for 2025 - Organized Summary of hizakura Promotions
 
 ## hizakura Introduction
 hizakura is a reputable Dutch company established in 2021, specializing in VPS hosting and IP leasing in the Netherlands. Known for their cost-effective VPS solutions, hizakura offers high-quality services with robust specifications.
